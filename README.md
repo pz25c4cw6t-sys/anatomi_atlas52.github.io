@@ -1,1 +1,0 @@
-# anatomi_atlas52.github.io
